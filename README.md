@@ -1,2 +1,0 @@
-# UAS-WEBPRO2-2.6B
-Sri Wahyuningsih - 2020035 - 2.6B - UAS WEBPRO2
